@@ -1,2 +1,2 @@
-# Sal-n-de-belleza
+# Sal-on-de-belleza
 La bendición
